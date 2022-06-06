@@ -1,1 +1,0 @@
-https://Solomonsai.github.io/rsschool-cv/cv
